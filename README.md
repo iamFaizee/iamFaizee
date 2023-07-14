@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **khanfaizan1123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16eETNgN7s-iydOws29-n2cgqdqlFD5in/view]
+- 📄 Know about my experiences https://drive.google.com/file/d/16eETNgN7s-iydOws29-n2cgqdqlFD5in/view
 
 - ## 🏆 Trophies :
 <br/>
